@@ -13,3 +13,5 @@ Trolling, insulting/derogatory comments, and personal or political attacks
 Public or private harassment
 Publishing others' private information, such as a physical or electronic address, without explicit permission
 Other conduct which could reasonably be considered inappropriate in a professional setting
+#👕At Highstreet Lab, we're not just unveiling an array of exciting projects in the works; we're also giving you a sneak peek at upcoming brands before they officially launch their shops👀 
+
